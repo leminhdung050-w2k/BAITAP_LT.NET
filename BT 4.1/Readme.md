@@ -1,1 +1,1 @@
-<img width="1890" height="701" alt="Ảnh chụp màn hình 2026-09-23 150837" src="https://github.com/user-attachments/assets/00869f17-ee03-45f4-b612-851d2aee6c32" /><img width="1890" height="701" alt="Ảnh chụp màn hình 2026-09-23 150837" src="https://github.com/user-attachments/assets/3d037736-a50f-4e6b-b730-0049c6731ca8" />
+<img width="1890" height="701" alt="image" src="https://github.com/user-attachments/assets/097cdb8e-4a32-4008-8e7a-cf8aa5491bda" />
